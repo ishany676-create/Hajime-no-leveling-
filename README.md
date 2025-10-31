@@ -1,2 +1,2 @@
 # Hajime-no-leveling-
-Cet
+Cet prep
